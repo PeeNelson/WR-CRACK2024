@@ -1,4 +1,4 @@
-<img src="[https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRbgsg-LEnF3j_K6yrP0HyZxZe_hR4rpks8LQ&usqp=CAU](https://www.google.com/url?sa=i&url=https%3A%2F%2Fonly1autoglass.com%2FBlog%2Fentryid%2F75%2Fspider-crack-does-my-windshield-need-to-be-replaced&psig=AOvVaw0xzIrS716uWHA-IYIbiuIF&ust=1722626869201000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKD2vqfD1IcDFQAAAAAdAAAAABAE)" align="right" width="90" height="80">
+
 
 # WRCrack Tool
 
